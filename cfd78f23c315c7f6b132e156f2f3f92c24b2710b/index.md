@@ -3,7 +3,7 @@ layout: index
 title: Senekrainian
 shorttitle: VB
 tagline: The Face of the Senekrainian Community
-logo: ![6a66f60e-6c6c-43de-8c11-d89483d19a5e](https://user-images.githubusercontent.com/52472274/60607957-4891ae80-9d8c-11e9-9ce6-3d2c6c4f0761.jpg)
+logo: https://user-images.githubusercontent.com/52472274/60607957-4891ae80-9d8c-11e9-9ce6-3d2c6c4f0761.jpg
 
 ---
 
