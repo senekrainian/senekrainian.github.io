@@ -7,3 +7,6 @@
 
 ### 2019-06-28
 ![2019-06-28](https://user-images.githubusercontent.com/52472274/60551197-89d87e80-9cf8-11e9-82d7-386d336f7608.png)
+
+### 2019-06-20
+![2019-06-20](https://user-images.githubusercontent.com/52472274/60623377-81437f00-9db0-11e9-8cd0-245f4d6bf02e.png)
