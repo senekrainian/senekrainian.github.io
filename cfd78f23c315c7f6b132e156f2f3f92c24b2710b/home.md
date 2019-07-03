@@ -1,5 +1,5 @@
 ---
-layout: index
+layout: home
 title: Senekrainian
 shorttitle: VB
 tagline: The Face of the Senekrainian Community
