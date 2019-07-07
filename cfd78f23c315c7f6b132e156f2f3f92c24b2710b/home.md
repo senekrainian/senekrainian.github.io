@@ -1,3 +1,9 @@
+## [2019-07-06](#2019-07-06)
+![2019-07-06](https://user-images.githubusercontent.com/52472274/60772661-a5ac9d80-a0c7-11e9-8a83-9d13094aa140.jpg)
+![2019-07-06-tat](https://user-images.githubusercontent.com/52472274/60772662-a5ac9d80-a0c7-11e9-8d3f-d2027db15a18.jpg)
+![2019-07-06-ah](https://user-images.githubusercontent.com/52472274/60772663-a5ac9d80-a0c7-11e9-8959-10f03c0d7196.gif)
+![2019-07-06-lait-s-il-vous-plait](https://user-images.githubusercontent.com/52472274/60772664-a5ac9d80-a0c7-11e9-923f-da5d59b757d8.jpg)
+
 ## [2019-07-05](#2019-07-05)
 ![2019-07-05](https://user-images.githubusercontent.com/52472274/60750459-c9140300-9f76-11e9-9283-2994464b2da3.jpg)
 
