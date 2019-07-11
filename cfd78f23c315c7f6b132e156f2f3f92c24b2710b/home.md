@@ -1,3 +1,16 @@
+
+## [2019-07-10](#2019-07-10)
+![2019-07-10-the-life](https://user-images.githubusercontent.com/52472274/61078009-a4dc7a00-a3ed-11e9-9d20-e0ce6ad3e56d.jpg)
+![2019-07-10-look](https://user-images.githubusercontent.com/52472274/61076777-051dec80-a3eb-11e9-98d4-d35e9da6f22e.gif)
+
+
+## [2019-07-09](#2019-07-09)
+![2019-07-09](https://user-images.githubusercontent.com/52472274/61077819-28e23200-a3ed-11e9-8831-79d30209f319.jpg)
+
+## [2019-07-08](#2019-07-08)
+![2019-07-08-head](https://user-images.githubusercontent.com/52472274/61078188-1ae0e100-a3ee-11e9-8a9b-4b7bf5a4b45c.jpg)
+![2019-07-08-side](https://user-images.githubusercontent.com/52472274/61077611-c6893180-a3ec-11e9-8584-159bb371bc97.jpg)
+
 ## [2019-07-06](#2019-07-06)
 ![2019-07-06](https://user-images.githubusercontent.com/52472274/60772661-a5ac9d80-a0c7-11e9-8a83-9d13094aa140.jpg)
 ![2019-07-06-tat](https://user-images.githubusercontent.com/52472274/60772662-a5ac9d80-a0c7-11e9-8d3f-d2027db15a18.jpg)
