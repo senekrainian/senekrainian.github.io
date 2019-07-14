@@ -1,3 +1,6 @@
+## [2019-07-14](#2019-07-14)
+![2019-07-14](https://user-images.githubusercontent.com/52472274/61189769-d3fa2200-a65f-11e9-8154-6ef5cd79ba33.JPG)
+
 ## [2019-07-12](#2019-07-12)
 ![2019-07-12-knigi](https://user-images.githubusercontent.com/52472274/61189473-ff7b0d80-a65b-11e9-9b35-37a81e320a08.jpg)
 
