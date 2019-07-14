@@ -1,8 +1,9 @@
+## [2019-07-12](#2019-07-12)
+![2019-07-12-knigi](https://user-images.githubusercontent.com/52472274/61189473-ff7b0d80-a65b-11e9-9b35-37a81e320a08.jpg)
 
 ## [2019-07-10](#2019-07-10)
 ![2019-07-10-the-life](https://user-images.githubusercontent.com/52472274/61078009-a4dc7a00-a3ed-11e9-9d20-e0ce6ad3e56d.jpg)
 ![2019-07-10-look](https://user-images.githubusercontent.com/52472274/61076777-051dec80-a3eb-11e9-98d4-d35e9da6f22e.gif)
-
 
 ## [2019-07-09](#2019-07-09)
 ![2019-07-09](https://user-images.githubusercontent.com/52472274/61077819-28e23200-a3ed-11e9-8831-79d30209f319.jpg)
