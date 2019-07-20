@@ -1,3 +1,15 @@
+## [2019-07-19](#2019-07-19)
+![2019-07-19](https://user-images.githubusercontent.com/52472274/61572776-adc5ef00-aa70-11e9-9303-a991dbaf02c5.jpg)
+
+## [2019-07-17](#2019-07-17)
+![2019-07-17](https://user-images.githubusercontent.com/52472274/61572828-e31f0c80-aa71-11e9-8a92-bdc6e6b0e7df.jpg)
+
+## [2019-07-16](#2019-07-16)
+![2019-07-16](https://user-images.githubusercontent.com/52472274/61572940-c71c6a80-aa73-11e9-9800-fc8d20c7ca56.jpg)
+
+## [2019-07-15](#2019-07-15)
+![2019-07-15](https://user-images.githubusercontent.com/52472274/61572915-3cd40680-aa73-11e9-871e-dba68beaff64.gif)
+
 ## [2019-07-14](#2019-07-14)
 ![2019-07-14](https://user-images.githubusercontent.com/52472274/61189769-d3fa2200-a65f-11e9-8154-6ef5cd79ba33.JPG)
 
