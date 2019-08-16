@@ -4,9 +4,6 @@
 ## [2019-08-11](#2019-08-11)
 ![2019-08-11_IMG_3965](https://user-images.githubusercontent.com/52472274/63137315-be9c4e80-bfa3-11e9-8518-005e5b08f7d3.png)
 
-## [2019-08-10](#2019-08-10)
-![2019-08-10_58709763065__05A41273-DA4A-434F-9BAD-FE4852A2FAEE](https://user-images.githubusercontent.com/52472274/63132683-13ce6500-bf90-11e9-9d08-6165fc7919d3.jpg)
-
 ## [2019-08-08](#2019-08-08)
 ![2019-08-08_IMG_3956](https://user-images.githubusercontent.com/52472274/63135880-84c84980-bf9d-11e9-80f7-257a6fa7999f.jpg)
 ![2019-08-08_IMG_3948](https://user-images.githubusercontent.com/52472274/63132685-1466fb80-bf90-11e9-8e25-a977c2fc6381.jpg)
