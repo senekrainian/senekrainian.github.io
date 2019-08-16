@@ -1,5 +1,5 @@
 ## [2019-08-13](#2019-08-13)
-![2019-08-13_IMG_3982](https://user-images.githubusercontent.com/52472274/63136129-8e05e600-bf9e-11e9-8932-34b7ee63741d.jpg)
+![2019-08-13_IMG_3982](https://user-images.githubusercontent.com/52472274/63137403-1cc93180-bfa4-11e9-8d4b-4f7f917f4975.jpg)
 
 ## [2019-08-11](#2019-08-11)
 ![2019-08-11_IMG_3965](https://user-images.githubusercontent.com/52472274/63137315-be9c4e80-bfa3-11e9-8518-005e5b08f7d3.png)
