@@ -1,5 +1,5 @@
 ## [2019-08-13](#2019-08-13)
-![2019-08-13_IMG_3982](https://user-images.githubusercontent.com/52472274/63132680-13ce6500-bf90-11e9-9e85-f521608e49ae.jpg)
+![2019-08-13_IMG_3982](https://user-images.githubusercontent.com/52472274/63136129-8e05e600-bf9e-11e9-8932-34b7ee63741d.jpg)
 
 ## [2019-08-11](#2019-08-11)
 ![2019-08-11_IMG_3969](https://user-images.githubusercontent.com/52472274/63132681-13ce6500-bf90-11e9-86db-eee6cf1ed79a.jpg)
@@ -40,7 +40,7 @@
 ![2019-07-28_IMG_3827](https://user-images.githubusercontent.com/52472274/63132706-15982880-bf90-11e9-878a-b206b42e7d27.jpg)
 
 ## [2019-07-27](#2019-07-27)
-![2019-07-27_IMG_3808](https://user-images.githubusercontent.com/52472274/63132707-15982880-bf90-11e9-89eb-8388ab1a5805.jpg)
+![2019-07-27_IMG_3808](https://user-images.githubusercontent.com/52472274/63136171-c279a200-bf9e-11e9-9def-d200bf6342ac.jpg)
 
 ## [2019-07-26](#2019-07-26)
 ![2019-07-26_IMG_5629](https://user-images.githubusercontent.com/52472274/63132708-15982880-bf90-11e9-96a2-e7ae832d6aa4.jpg)
