@@ -9,7 +9,7 @@
 ![2019-08-10_58709763065__05A41273-DA4A-434F-9BAD-FE4852A2FAEE](https://user-images.githubusercontent.com/52472274/63132683-13ce6500-bf90-11e9-9d08-6165fc7919d3.jpg)
 
 ## [2019-08-08](#2019-08-08)
-![2019-08-08_IMG_3956](https://user-images.githubusercontent.com/52472274/63132684-1466fb80-bf90-11e9-9c5d-5de6e2345288.jpg)
+![2019-08-08_IMG_3956](https://user-images.githubusercontent.com/52472274/63135880-84c84980-bf9d-11e9-80f7-257a6fa7999f.jpg)
 ![2019-08-08_IMG_3948](https://user-images.githubusercontent.com/52472274/63132685-1466fb80-bf90-11e9-8e25-a977c2fc6381.jpg)
 
 ## [2019-08-05](#2019-08-05)
@@ -24,13 +24,10 @@
 ![2019-08-03_IMG_3905](https://user-images.githubusercontent.com/52472274/63132692-1466fb80-bf90-11e9-920c-336e0afd77e6.jpg)
 
 ## [2019-08-02](#2019-08-02)
-![2019-08-02_IMG_3898](https://user-images.githubusercontent.com/52472274/63132693-1466fb80-bf90-11e9-988f-b107746dbd6b.jpg)
-![2019-08-02_IMG_3895](https://user-images.githubusercontent.com/52472274/63132694-14ff9200-bf90-11e9-9e3a-16b45f709aaf.jpg)
-![2019-08-02_IMG_3885](https://user-images.githubusercontent.com/52472274/63132695-14ff9200-bf90-11e9-8260-106a2f4453d9.jpg)
-![2019-08-02_IMG_3883](https://user-images.githubusercontent.com/52472274/63132696-14ff9200-bf90-11e9-8aa0-7f3e3b81308e.jpg)
+![IMG_3895-COLLAGE](https://user-images.githubusercontent.com/52472274/63135983-f1dbdf00-bf9d-11e9-990a-2623134b3449.jpg)
+![IMG_3883-COLLAGE](https://user-images.githubusercontent.com/52472274/63136042-2bace580-bf9e-11e9-9e02-93f69e53ac4e.jpg)
+![IMG_3864-COLLAGE](https://user-images.githubusercontent.com/52472274/63136093-5dbe4780-bf9e-11e9-9aa9-d5c4d4de2a53.jpg)
 ![2019-08-02_IMG_3868](https://user-images.githubusercontent.com/52472274/63132697-14ff9200-bf90-11e9-840a-fc84cb3b7e1a.jpg)
-![2019-08-02_IMG_3865](https://user-images.githubusercontent.com/52472274/63132698-14ff9200-bf90-11e9-9576-ea0e5feb25f9.jpg)
-![2019-08-02_IMG_3864](https://user-images.githubusercontent.com/52472274/63132699-14ff9200-bf90-11e9-8627-043838c23387.jpg)
 
 ## [2019-07-29](#2019-07-29)
 ![2019-07-29_IMG_5672](https://user-images.githubusercontent.com/52472274/63132700-14ff9200-bf90-11e9-9983-67a37f3e6079.jpg)
