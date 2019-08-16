@@ -2,8 +2,7 @@
 ![2019-08-13_IMG_3982](https://user-images.githubusercontent.com/52472274/63136129-8e05e600-bf9e-11e9-8932-34b7ee63741d.jpg)
 
 ## [2019-08-11](#2019-08-11)
-![2019-08-11_IMG_3969](https://user-images.githubusercontent.com/52472274/63132681-13ce6500-bf90-11e9-86db-eee6cf1ed79a.jpg)
-![2019-08-11_IMG_3965](https://user-images.githubusercontent.com/52472274/63132682-13ce6500-bf90-11e9-9c3c-d992f7eb2db1.jpg)
+![2019-08-11_IMG_3965](https://user-images.githubusercontent.com/52472274/63137315-be9c4e80-bfa3-11e9-8518-005e5b08f7d3.png)
 
 ## [2019-08-10](#2019-08-10)
 ![2019-08-10_58709763065__05A41273-DA4A-434F-9BAD-FE4852A2FAEE](https://user-images.githubusercontent.com/52472274/63132683-13ce6500-bf90-11e9-9d08-6165fc7919d3.jpg)
